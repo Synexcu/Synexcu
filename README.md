@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Synexcu
-- 👀 I’m interested in learning new languages
-- 🌱 I’m currently learning JavaScript
+- 👀 I’m interested in learning new languages both in Computing and in Foreign country.
+- 🌱 I’m currently learning JavaScript, and many else
 - 📫 Hit me up on Discord (Synexcu#0926) and Twitter @Synexcu
 
 <!---
