@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Synexcu
 - 👀 I’m interested in learning new languages both in Computing and in Foreign country.
 - 🌱 I’m currently learning JavaScript, and many else
-- 📫 Hit me up on Discord (Synexcu#0926) and Twitter @Synexcu
+- 📫 Hit me up on Discord (Synexcu#8040)
 
 <!---
 Synexcu/Synexcu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
