@@ -1,5 +1,5 @@
 # 💫 About Me:
-Male, Indonesian, loves to learn new languages 🎌<br>🔭 I’m currently w̶o̶r̶k̶i̶n̶g̶ ̶o̶n̶  LOOKING FOR WORK BROO PLEASEE GIVE ME INTERNSHIP 😭
+Male, Indonesian, loves to learn new languages 🎌<br>🔭 I’m currently ~~working on~~ LOOKING FOR WORK BROO PLEASEE GIVE ME INTERNSHIP 😭
 
 
 ## 🌐 Socials:
